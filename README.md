@@ -1,1 +1,1 @@
-My own website, where I represent myself
+Altes Portfolio. Wird bald ersetzt.
